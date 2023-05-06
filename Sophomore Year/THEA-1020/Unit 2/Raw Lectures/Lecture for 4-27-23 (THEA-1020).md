@@ -1,0 +1,138 @@
+### Broadway Musicals
+
+- **Contemporary American Musical Theatre**
+	- Perhaps America's only original theatrical form
+- Hallmarks of the American Musical
+	- Songs directly related to the plot
+		- Not like musical reviews in the 1920s where they just sang to sing
+	- Strong story line
+	- Dance is often an important element
+- **Oklahoma!**
+	- Oklahoma! heralded a golden age of musical theatre
+		- The first collaboration between **Rodgers** and **Hammerstein**
+			- Other shows created by this duo include *South Pacific*, *The King and I*, *Fame*, and *The Sound of Music*
+	- Contained the famous 14-minute ballet sequence choreographed by Agnes DeMille
+- Golden Age of American Musical Theatre: 1950s and 1960s
+	- Classic story and song-driven plots
+- ***West Side Story***
+	- Landmark musical
+	- Set in NYC in 1957 about a rivalry between a white gang and a Puerto Rican gang
+	- Dark theme, sophisticated music, extended dance scenes, and a focus on social problems marked it as a turning point in American theatre
+	- Songs include:
+		- "Maria"
+		- "Somewhere"
+		- "I Feel Pretty"
+		- "Tonight"
+	- Music made by Stephen Sondheim
+- **Stephen Sondheim**
+	- Probably the most important figure in American musical theatre in recent decades
+	- Grew up next door to Oscar Hammerstein
+	- Some of his works include *West Side Story*, *Sweeney Todd*, *Sunday in the Park with George*, and *Into the Woods*
+- Beginning in the late 60s and early 70s, musicals began to move away from story and plot and focused more on the music and dance
+	- This gave rise to the idea of the concept musical
+- **Concept Musical**
+	- *Hair* (1967)
+	- *A Chorus Line* (1975)
+	- Emphasizes style, theme, and thematic metaphors over a traditional story or plot line
+- **Hair** (1967)
+	- A concept rock musical about NYC hippies
+		- Moved away from the realism of previous musicals
+		- Musical numbers follow a general theme, less emphasis on plot
+			- Hippie counterculture
+			- Protested against:
+				- The Vietnam War
+				- Racism
+				- Police brutality
+				- Injustice
+		- Controversial
+- **A Chorus Line** (1975)
+	- No overarching plot
+	- A series of songs and dances about the lives of dancers and chorus members
+	- Show held together by the choreography
+- Musical Theatre Trend: *Choreographer as Director*
+	- The director soon became the choreographer (and vice versa) as the show began to hinge on dance numbers
+- Musical Theatre Trend: *British Composers and Lyricists*
+	- Blockbuster British Musicals:
+		- *Phantom of the Opera*
+			- Could you even fucking imagine being in the same orchestra pit for 35 years?
+		- *Cats
+		- *Evita
+		- *Les Mis
+		- *Billy Elliott
+		- *Matilda
+		- *School of Rock
+	- Dream team between **Andrew Lloyd Webber** and **Tim Rice**
+- Musical Theatre Trend: *Offbeat and Irreverent Musicals*
+	- Include shows such as:
+		- *Rent*
+		- *Avenue Q*
+		- *The Book of Mormon*
+			- Very controversial show
+			- Made by both of the creators of South Park
+	- Essentially revolves around musicals that are very quirky and strange 
+- Musical Theatre Trend: *Musicals Based on Religious Themes*
+	- Not a return to liturgical drama, but ya know
+- Musical Theatre Trend: *Musicals Based on Films*
+	- This is huge
+	- Musicals that originated as blockbuster films
+	- Not a huge financial gamble due to already having a strong audience
+		- Commercial appeal and all that
+	- *The Producers*
+	- *Kinky Boots*
+	- *Hairspray*
+	- *Billy Elliot*
+	- *The Lion King*
+		- Biggest and boldest example of all of this
+		- Disney chose Julie Taymor to adapt the animated movie to a Broadway musical
+			- She was known for avant-garde puppet techniques and Asian theatre styles
+		- Enormouscommercial success reflected the merging of popular and experimental theatre at the same time
+- Musical Theatre Trend: *Jukebox Musicals*
+	- Features songs of pop music stars and groups
+		- Well known songs
+	- Created by stringing musical numbers together
+	- Not unlike the musical reviews of the 1920s
+	- Kinda like a hybrid of a play and a concert
+	- Seen as very cheap sometimes
+	- *Mamma Mia!*
+	- *Jagged Little Pill*
+	- *Jersey Boys*
+- Musical Theatre Trend: *Revivals*
+	- Revivals of a classic show is a very safe investment
+	- *Little Shop of Horrors*
+	- *Funny Girl*
+- Musical Theatre Trend: *Reimagining History*
+	- Shows that basically reimagine history in different lens
+		- Especially American history
+	- *Hamilton*
+	- *1776*
+- **In the Heights**
+	- Lin Manuel Miranda's first hit musical
+	- Dominican-Americans in Washington Heights in Manhattan
+	- Mix of musical styles
+	- Won 3 Tony Awards in 2008
+- **Hamilton**
+	- Yeah yeah, we all know this one
+		- Uses hip-hop and R&B as a major portion of the musical
+		- Also had a very inclusive cast
+			- Remember **Joseph Papp** (founder of The Public Theatre and also Shakespeare in the Park)
+				- The Public Theatre was casting black and latino actors in Shakespearean shows since the 70s
+					- *Hamilton* was a show that established this practice as a new concept for many in 2015
+		- Was inspired by Lin Manuel Miranda reading a biography of Alexander Hamilton
+			- The Public Theatre is where the show got its start (Off-Broadway)
+				- Definitely use this as a template for linking and seeing where it goes on the map
+	- Before it opened on Broadway, took over $30 million in ticket sales
+		- Broke the one-week Broadway record by grossing $3.3 million from 8 shows
+	- Nominated for 16 Tonys (a record), won 11
+- **1776**
+	- About John Adams and the signing of the Declaration of Independence
+	- Written in the 1960s during the Civil Rights Movement
+		- Height of the Vietnam War
+	- New *1776* is composed of women, NB, and transgender actors playing mostly male characters
+		- Cast is also more diverse, with a majority of people of color
+- **Homework assignment**
+	- Name your favorite song from a musical and why you like it. Be prepared to talk about it in class
+		- Write about a paragraph of why
+	- Send a link to a video performance of the song
+
+
+Great proof of concept for these notes! This is definitely really good! If we add in links and stuff, this would be amazing (maybe not for this section)

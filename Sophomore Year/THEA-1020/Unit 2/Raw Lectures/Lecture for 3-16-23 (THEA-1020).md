@@ -1,0 +1,137 @@
+### The Theatre of the English Restoration
+
+• Remember that after the English Civil War, the Puritans took over and executed Charles I in 1649
+	◦ **Oliver Cromwell** ruled England afterwards
+	◦ Charles II ran off in exile to avoid death
+• **The Commonwealth**
+	◦ The time after the execution of Charles I and the reinstatement of his son Charles II is called the Commonwealth
+		‣ Also known as the Interregnum
+• Most fun things were <u>banned</u> during the Commonwealth
+	◦ Puritans believed in an austere lifestyle
+	◦ Celebration of traditional holidays suppressed
+	◦ Music, dancing, and singing were limited
+	◦ No gambling
+	◦ Books that did not adhere to Puritan philosophy were banned
+	◦ Theatre was completely banned in 1642, with the playhouses being fully dismantled
+		‣ However, some entertainments were secretly organized in private homes
+• **William Davenant**
+	◦ Playwright and producer
+	◦ Legacy goes back to Shakespeare, who may or may not have been his godfather
+	◦ Was a court playwright before the Commonwealth
+	◦ Had worked with scenic designer Inigo Jones
+	◦ Held "musical entertainments" in his home, and evaded Puritan rules
+• ***The Siege of Rhodes***
+	◦ First opera within England, written by Davenant in 1656
+	◦ First production with Italianate, interchangeable scenery
+	◦ First to feature actresses
+	◦ Slipped around all the rules by just pretending that this wasn't theatre, this was opera
+• **The Restoration, 1660**
+	◦ **King Charles II** invited to return to England and ascend the throne
+		‣ Oliver Cromwell died at this point, and Cromwell's son sucked at ruling, and the people were tired of living the boring Puritan lifestyle
+	◦ Not only the king, but all of the nobles had been in exile 
+		‣ Some were in Italy and Spain, but many were primary in France
+• England in the Restoration
+	◦ Once again began to expand its explorations
+	◦ English settled new colonies from New England to the Carolinas
+		‣ The beginning of the 13 colonies
+	◦ East India Company (oh god) established trade in India and the West Indies
+	◦ Great scientific and cultural advancements were made
+		‣ Newton and calculus and gravity, etc.
+• Reopening of the Theatres
+	◦ Charles II reopened the theatres 
+	◦ Differences from previous English theatres:
+		‣ All indoors
+		‣ Audience primary from aristocratic classes
+		‣ New permissiveness pervaded the theatres
+			• Meaning, absolute degeneracy
+• Actresses
+	◦ Had been common in Italy and France
+	◦ In 1660, a HUGE novelty for England
+	◦ Heavily sexualized (and one of the reasons people went to the theatre)
+	◦ Breeches Roles
+		‣ Roles that required an actress to dress like a boy 
+		‣ Why the hell would you do this?
+			• To have her legs be exposed
+				◦ Because men thought legs were erotic back then
+					‣ These people were fucking desperate
+• **Nell Gwynn**
+	◦ Eleanor Gwynn, also known as Nell Gwynn, was an actress known for her Breeches roles
+	◦ Born in a brothel
+		‣ Her life was essentially about to boil down into becoming a prostitute
+	◦ Probably began her theatre career as an orange wench
+	◦ Attracted the eye of lead actor Charles Hart, who moved her to the stage
+• Charles II meets actress Nell Gwynn
+	◦ In 1669, King Charles II saw Nell onstage
+		‣ Shortly thereafter, she became one of the royal mistresses
+			• There were many
+			• Had a couple kids with him
+	◦ The people of England loved her for her wit, humor, and intelligence
+	◦ She retired from the theatre early, but she was great
+• **Anne Bracegirdle**
+	◦ Opposite of Nell Gwynn in the public imagination
+		‣ Famed for her <u>virtue</u>
+			• Weird disparity between people loving Nell Gwynn and Anne Bracegirdle
+				◦ Men love women who are pure and women who are whores
+	◦ Brilliant comedian
+	◦ Playwright **William Congreve** wrote specific parts just for her
+• Types of Restoration Drama
+	◦ **Tragedy:**
+		‣ Not as popular in its day, and rarely performed anymore
+			• People were tired of watching life suck, as life did already suck
+	◦ **Shakespeare do-overs:**
+		‣ Playwrights would take the works of Shakespeare and would rework them into a Neoclassical mold
+			• For example, Romeo and Juliet had a happy ending!
+	◦ **Comedy:**
+		‣ By far the most popular and lasting genre during the Restoration  
+• **Restoration Comedies**
+	◦ Influenced by Moliere [link to the past]
+	◦ Mirror up to society
+	◦ Poke fun at fashions and foibles and hypocrisy of the upper class
+	◦ Language and witty humor was important
+	◦ Plots revolved around gossip, adultery, and sexual escapades
+	◦ Language was sexually suggestive
+		‣ **Double Entendre**
+			• To have two meanings
+				◦ From the French "to hear twice"
+			• One meaning was literal, the other was sexual
+• Rehearsals and Acting
+	◦ Rehearsals were sketchy
+	◦ Playwrights might be there for the first rehearsal
+		‣ After that, the company manager or the leading actor would oversee rehearsals
+			• Usually just to make sure the actors knew their lines
+				◦ They often did not lol
+• Restoration Audiences
+	◦ Theatre mostly by, for, and about, *aristocrats*
+	◦ Ticket prices were high, and there were only two theatres in London
+	◦ Audience members talked amongst themselves and even back to the actors while the play was going on
+		‣ They were in part to see each other and to be seen
+• Plays during the Restoration had orange wenches, prostitutes, and liaisons
+	◦ Tons of weird sexual stuff going on
+• The Libertine is a modern day movie that is set during the Restoration that gave an idea of theaters back in the day
+• Character types during the Restoration
+	◦ **Fops**
+		‣ Over-interested in clothes and fashion
+		‣ Could be gay, or could just be a metrosexual
+	◦ **Rakes**
+		‣ Short for rake-hell, a player
+	◦ Wits
+	◦ Would-be wits
+	◦ **The falsely virtuous**
+		‣ Hypocrites
+	◦ **The excessively jealous**
+		‣ Usually about husbands who were afraid of being cucked lol
+	◦ **The excessively complacent**
+		‣ Self-satisfied, unworried, smug
+		‣ Blissfully unaware
+• ***The Country Wife***
+	◦ Play by William Wycherley
+	◦ One of the greatest of the Restoration Comedies
+	◦ Horner, a "rake", pretends to have syphilis and is now impotent
+		‣ Goes to husbands to try to gain their trust and then fuck their wives
+			• It works!
+	◦ Notorious scene called the "China scene"
+		‣ Horner invites a lady into a room offstage to look at his "China"
+			• Her husband is outside and he thinks that Horner is a eunuch
+			• Another lady comes on in and has the hots for Horner, and she is jealous and tries to walk in on them both having sex
+
+Testing testing
