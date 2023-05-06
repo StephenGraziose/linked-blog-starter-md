@@ -1,133 +1,133 @@
 ### Theatres from 1915 to 1950 (Part II)
 
-• Theatres under Totalitarianism
-	◦ Some forms of theatre were completely suppressed by the government in some totalitarian regimes
-	◦ However, some other forms of theatre were encouraged
+- Theatres under Totalitarianism
+	- Some forms of theatre were completely suppressed by the government in some totalitarian regimes
+	- However, some other forms of theatre were encouraged
 		‣ Particularly in the Soviet Union under Stalin, and Germany under Hitler, government-supported theatre served as instruments of propaganda
-• **Propaganda**
-	◦ Information, especially of a biased or misleading nature, used to promote or publicize a particular political cause or point of view
-• Theatres under Totalitarianism: The Soviet Union
-	◦ 1930s, Socialist Realism was the only acceptable form of theatre back in the day
-	◦ Plays to be written in a realistic style, and convey a pure socialist message (propaganda)
-• Theatres under Totalitarianism: The Third Reich
-	◦ Melodramas exalting Nazism were produced, as well as mass spectacles that supported the Third Reich
+- **Propaganda**
+	- Information, especially of a biased or misleading nature, used to promote or publicize a particular political cause or point of view
+- Theatres under Totalitarianism: The Soviet Union
+	- 1930s, Socialist Realism was the only acceptable form of theatre back in the day
+	- Plays to be written in a realistic style, and convey a pure socialist message (propaganda)
+- Theatres under Totalitarianism: The Third Reich
+	- Melodramas exalting Nazism were produced, as well as mass spectacles that supported the Third Reich
 		‣ One of these is "Deutsche Passion"
-			• Hitler is literally a Christ figure
-			• The Passion of Christ but with Hitler  
-• Suppression of Anti-Totalitarian Artists
-	◦ Artists who opposed totalitarian regimes often suppressed
-	◦ Soviet Union:
+			- Hitler is literally a Christ figure
+			- The Passion of Christ but with Hitler  
+- Suppression of Anti-Totalitarian Artists
+	- Artists who opposed totalitarian regimes often suppressed
+	- Soviet Union:
 		‣ Meyerhold was put in a labor camp and killed
-			• This will be on the final
-	◦ Germany:
+			- This will be on the final
+	- Germany:
 		‣ Many artists who opposed the Third Reich either fled (Brecht) or were sent to concentration camps
-• Theatre as a form of Resistance
-	◦ Nazi guards at Dachau forced internees to stage productions for them as a form of entertainment
+- Theatre as a form of Resistance
+	- Nazi guards at Dachau forced internees to stage productions for them as a form of entertainment
 		‣ Plays subtly satirized the camps   
-	◦ In Auschwitz, there were secret improvised entertainments among prisoners
+	- In Auschwitz, there were secret improvised entertainments among prisoners
 		‣ They consisted of drama recited from memory, songs, and satirical skits
-• American Theatre
-	◦ During the war years, some experiments in non-realism occurred during this time period
-	◦ However, American theatre was primarily *commercial*
+- American Theatre
+	- During the war years, some experiments in non-realism occurred during this time period
+	- However, American theatre was primarily *commercial*
 		‣ Realism was the norm
 		‣ People did not want to be challenged mentally or feel even worse about their situation than before
-• **The Shubert Organization**
-	◦ The Theatrical Syndicate monopoly was toppled in 1915 by the Shubert family
-	◦ The Shuberts didn't control actors' careers, their focus was on owning and booking theatres
-	◦ The Shubert Organization still controls over 50% of the Broadway theatres in New York 
-• The Rise of the Musical
-	◦ The most commercially successful form of American theatre was (and is) the musical
-	◦ Genre began in the 1920s with popular music reviews
-	◦ **The Ziegfield Follies**
+- **The Shubert Organization**
+	- The Theatrical Syndicate monopoly was toppled in 1915 by the Shubert family
+	- The Shuberts didn't control actors' careers, their focus was on owning and booking theatres
+	- The Shubert Organization still controls over 50% of the Broadway theatres in New York 
+- The Rise of the Musical
+	- The most commercially successful form of American theatre was (and is) the musical
+	- Genre began in the 1920s with popular music reviews
+	- **The Ziegfield Follies**
 		‣ Annual Broadway music review
 		‣ Lasted for decades and decades
-	◦ Out of these music reviews was born the musical comedy, which blossomed in the 1920s and the 1930s
-	◦ These are being called "reviews" because they're not fully-fledged musicals yet
-• Musicals
-	◦ Musicals then, and now, ruled Broadway
-	◦ Ticket prices are still higher for musicals, they usually have far longer runs than "straight plays"
-	◦ At first, most musicals had very silly, inconsequential stories
+	- Out of these music reviews was born the musical comedy, which blossomed in the 1920s and the 1930s
+	- These are being called "reviews" because they're not fully-fledged musicals yet
+- Musicals
+	- Musicals then, and now, ruled Broadway
+	- Ticket prices are still higher for musicals, they usually have far longer runs than "straight plays"
+	- At first, most musicals had very silly, inconsequential stories
 		‣ There became two notable exceptions to this, however 
-• ***Show Boat* (1927)**
-	◦ A landmark production
-	◦ Songs and dance move plot and character development forwards
-	◦ Featured an interracial cast, and themes that were progressive for their time
+- ***Show Boat* (1927)**
+	- A landmark production
+	- Songs and dance move plot and character development forwards
+	- Featured an interracial cast, and themes that were progressive for their time
 		‣ Dealt with themes of slavery and performing hard field labor until one dies
-• ***Oklahoma!** (1943)*
-	◦ A breakthrough musical as well
-	◦ Songs are an extension of the spoken text
-	◦ The "dream ballet" integrated dance into the plot
-	◦ Instead of functioning as an interlude or diversion, the ballet provided insight into the heroine's emotional turmoil  
-• **The Great Depression**
-	◦ American commerical theatre boomed through the 1920s, but then the Great Depression occurred after the Stock Market Crash in 1929
-	◦ Theatre became a luxury many people could not afford
-	◦ Higher production costs also hurt
-	◦ That same year, 1929, a new innovation gave audiences a new experience: Talkies
-• Talkies
-	◦ After the introduction of sound to films in 1929, movies became increasingly popular and affordable as an alternative to theatre
-	◦ Very cheap to watch, much cheaper to make too
-	◦ Al Jolson's ***The Jazz Singer*** was the first talkie to exist
-• Experimental Theatre and the United States: Elmer Rice
-	◦ Not much experimental theatre in this period in the United States
-	◦ Exception: **Elmer Rice** and his play ***The Adding Machine*** *(1923)*
+- ***Oklahoma!** (1943)*
+	- A breakthrough musical as well
+	- Songs are an extension of the spoken text
+	- The "dream ballet" integrated dance into the plot
+	- Instead of functioning as an interlude or diversion, the ballet provided insight into the heroine's emotional turmoil  
+- **The Great Depression**
+	- American commerical theatre boomed through the 1920s, but then the Great Depression occurred after the Stock Market Crash in 1929
+	- Theatre became a luxury many people could not afford
+	- Higher production costs also hurt
+	- That same year, 1929, a new innovation gave audiences a new experience: Talkies
+- Talkies
+	- After the introduction of sound to films in 1929, movies became increasingly popular and affordable as an alternative to theatre
+	- Very cheap to watch, much cheaper to make too
+	- Al Jolson's ***The Jazz Singer*** was the first talkie to exist
+- Experimental Theatre and the United States: Elmer Rice
+	- Not much experimental theatre in this period in the United States
+	- Exception: **Elmer Rice** and his play ***The Adding Machine*** *(1923)*
 		‣ Used expressionism to explore:
-			• Depersonalization and mechanization of American life
-			• Alienation of a society where people connect more with machines than with each other
-			• This shit is INCREDIBLY relevant nowadays
-• Experimental Theatre in the United States: Thornton Wilder
-	◦ **Thornton Wilder** was another experimental playwright
+			- Depersonalization and mechanization of American life
+			- Alienation of a society where people connect more with machines than with each other
+			- This shit is INCREDIBLY relevant nowadays
+- Experimental Theatre in the United States: Thornton Wilder
+	- **Thornton Wilder** was another experimental playwright
 		‣ Wrote **Our Town** *(1938)*
-			• Play is still popular and performed today
-			• He applied techniques from Chinese theatre and other non-realistic sources to tell a quintessentially American story  
-• The "Little Theatre" Movement and the Provincetown Playhouse
-	◦ Post-WWI: Small independent theatres were dominant
-	◦ **Provincetown Playhouse** was created in 1915
+			- Play is still popular and performed today
+			- He applied techniques from Chinese theatre and other non-realistic sources to tell a quintessentially American story  
+- The "Little Theatre" Movement and the Provincetown Playhouse
+	- Post-WWI: Small independent theatres were dominant
+	- **Provincetown Playhouse** was created in 1915
 		‣ Moved to Greenwich Village in NYC, outside of the Broadway District
 		‣ Dedicated to new American drama; produced experimental theatre
 		‣ This began the movement of off-Broadway theatre
-• The Group Theatre
-	◦ America's Moscow Art Theater (somewhat)
-	◦ This is a theatrical collective
-	◦ Stanislavsky method was used in productions created by these people
-	◦ Set the standard for realistic writing and performance in the USA
-	◦ Socially-relevant drama, hoped to motivate political action
-	◦ Founding members include **Lee Strasburg** and **Stella Adler** 
-• The Group Theatre Fractures
-	◦ Arguments over the interpretation of Stanislavsky
-	◦ Some felt that Strasburg over-emphasized **emotional recall**
+- The Group Theatre
+	- America's Moscow Art Theater (somewhat)
+	- This is a theatrical collective
+	- Stanislavsky method was used in productions created by these people
+	- Set the standard for realistic writing and performance in the USA
+	- Socially-relevant drama, hoped to motivate political action
+	- Founding members include **Lee Strasburg** and **Stella Adler** 
+- The Group Theatre Fractures
+	- Arguments over the interpretation of Stanislavsky
+	- Some felt that Strasburg over-emphasized **emotional recall**
 		‣ Emotional recall: Calling on past experiences to create present emotions
-	◦ Strasburg leaves the group
+	- Strasburg leaves the group
 		‣ He founds the **Actors Studio**; trains actors including Dustin Hoffman, Marilyn Monroe, and Al Pacino
-• **Stella Adler**
-	◦ From a premier Yiddish acting family
-	◦ Studied Stanislavsky system in USA with Russian actors, and later with Stanislavsky himself in France
-	◦ **Stella Adler Studio of Acting** opens in NYC
-	◦ Died in 1992, but her studio continues
+- **Stella Adler**
+	- From a premier Yiddish acting family
+	- Studied Stanislavsky system in USA with Russian actors, and later with Stanislavsky himself in France
+	- **Stella Adler Studio of Acting** opens in NYC
+	- Died in 1992, but her studio continues
 		‣ Alumni include Salma Hayek, Nick Nolte, and Martin Sheen 
-• College and University Theatres
-	◦ Theatre departments in colleges and universities emerge across the USA
+- College and University Theatres
+	- Theatre departments in colleges and universities emerge across the USA
 		‣ Some of the most notable of these are at Harvard, Yale, and Carnegie Mellon
-	◦ Training playwrights, performers, directors, designers, and technicians for professional theatre
-• **The Federal Theatre Project**
-	◦ Franklin Delano Roosevelt established the Works Progress Administration (WPA) to get unemployed people back to work during the depression
-	◦ The Federal Theatre Project was a branch of the WPA
+	- Training playwrights, performers, directors, designers, and technicians for professional theatre
+- **The Federal Theatre Project**
+	- Franklin Delano Roosevelt established the Works Progress Administration (WPA) to get unemployed people back to work during the depression
+	- The Federal Theatre Project was a branch of the WPA
 		‣ Supported theatre and helped revitalize regional theatre (theatre that occurs outside of NYC)
 		‣ It was the closest that the USA has ever come to forming a national theatre
-• **The Negro Theatre Project (NTP)**
-	◦ An important undertaking of the WPA's Federal Theatre Project was the formation of the Negro Theatre Project
+- **The Negro Theatre Project (NTP)**
+	- An important undertaking of the WPA's Federal Theatre Project was the formation of the Negro Theatre Project
 		‣ A branch of a branch
-	◦ Created companies to employ black actors, directors, writers, and technicians
-	◦ 23 black theatre companies established across the USA
-	◦ Formed the backbone of black theatre for many years in America
-• NTP's Macbeth
-	◦ Most famous production was in NYC, an all-black cast of Macbeth
-	◦ Directed by Orson Welles, a white director
+	- Created companies to employ black actors, directors, writers, and technicians
+	- 23 black theatre companies established across the USA
+	- Formed the backbone of black theatre for many years in America
+- NTP's Macbeth
+	- Most famous production was in NYC, an all-black cast of Macbeth
+	- Directed by Orson Welles, a white director
 		‣ Huge exception, as all of the upper management of the NTP consisted of black people 
-• African American Theatre in the 1920s
-	◦ Black theatre companies formed during the NTP, and the most important of these was the **Lafayette Players**
+- African American Theatre in the 1920s
+	- Black theatre companies formed during the NTP, and the most important of these was the **Lafayette Players**
 		‣ Presented over 250 productions
 		‣ Black artists broke into commercial theatre
-	◦ 20 plays with black casts presented on Broadway in the 1920s
+	- 20 plays with black casts presented on Broadway in the 1920s
 		‣ 5 of these plays were written by black people
 
 

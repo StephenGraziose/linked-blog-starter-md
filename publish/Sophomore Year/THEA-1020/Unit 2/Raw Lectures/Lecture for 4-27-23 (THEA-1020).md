@@ -55,12 +55,12 @@
 	- Blockbuster British Musicals:
 		- *Phantom of the Opera*
 			- Could you even fucking imagine being in the same orchestra pit for 35 years?
-		- *Cats
-		- *Evita
-		- *Les Mis
-		- *Billy Elliott
-		- *Matilda
-		- *School of Rock
+		- *Cats*
+		- *Evita*
+		- *Les Mis*
+		- *Billy Elliott*
+		- *Matilda*
+		- *School of Rock*
 	- Dream team between **Andrew Lloyd Webber** and **Tim Rice**
 - Musical Theatre Trend: *Offbeat and Irreverent Musicals*
 	- Include shows such as:
